@@ -12,3 +12,10 @@ I'm usually afk or offtab as i tend to work on something else irl while i sit on
 > I rarely interact first unless approached, if we share the same interest feel free to let me know. I'm usually seen near DC area or docks. Please do take notes that i barely use tonetags, anything that i say that sounded cruel is non serious! especially towards friends. I'm also a Harvey D./Twoface fictkin, for your and my own personal comfort, doubles strictly do not interact.
 
 </details>
+
+<details>
+<summary>DNI</summary>
+
+> Under the age of 15, bigots and illiterates in general. Other times i hide anyone freely.
+
+</details>
