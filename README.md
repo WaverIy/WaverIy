@@ -26,9 +26,3 @@
 > Mainly anything law and architecture related (as i am an architect), subnautica, minecraft (the game, not the fandoms inside the game), **kingsman: the secret service & the golden circle, the king's man, men in black: international, mission impossible: rogue nation, the man from uncle**, reverse:1999.
 
 </details>
-
----
-
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*New god,⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Someone who can save us from the way we are.*
