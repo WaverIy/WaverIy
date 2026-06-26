@@ -6,4 +6,3 @@ I'm usually afk or offtab as i tend to work on something else irl while i sit on
 
 [^1]: test
 [^2]: test
-This is a second line.
