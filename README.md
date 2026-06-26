@@ -2,7 +2,7 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hello, i'm mostly known as Sev around here.
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I'm usually afk or offtab as i tend to work on something else irl while i sit on pt. it is highly ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀suggested to whisper me if you wish to chat incase i don't see your messages.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀I'm usually afk or offtab as i tend to work on something else irl while i sit on pt. it is highly ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀suggested to whisper me if you wish to chat incase i don't see your messages.
 
 ---
 
