@@ -16,7 +16,7 @@
 <details>
 <summary>DNI</summary>
 
-> Under the age of 15, bigots and illiterates in general. Other times i hide anyone freely.
+> Under the age of 16, bigots and illiterates in general. Other times i hide anyone freely.
 
 </details>
 
