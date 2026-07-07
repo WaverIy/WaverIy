@@ -11,7 +11,7 @@
 
 > I rarely interact first unless approached, if we share the same interest feel free to let me know. I'm usually seen near DC area or docks. Please do take notes that i barely use tonetags, anything that i say that sounded cruel is non serious! especially towards friends. I'm also a Harvey D./Twoface fictkin, for your and my own personal comfort, doubles strictly do not interact. I always sit on my little 'bird nest' as i call it, which is above the lamp post in DCu area, sometimes on my own some other times with a friend or two. i rarely move, i apologize if i cover you.
 >
-> I am one of the members in T17, an organization working to host plentiful of competition events on Pony Town for Indonesia's Independence Day strictly in the indonesian Pony Town server. For inquiries, feel free to message me on Discord. (@sevtified)
+> I am one of the members in T17, an organization working to host plentiful of competition events on Pony Town for Indonesia's Independence Day strictly for the regiments/communities in the indonesian Pony Town server. For inquiries, feel free to message me on Discord. (@sevtified)
 >
 > Check out our official social medias! @Ponyboard on tiktok, @mlpid17 on Instagram.
 
