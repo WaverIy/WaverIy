@@ -43,7 +43,7 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
  </details /p>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=true&bar_color=975f11&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&redirect=true)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=true&bar_color=975f11&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&redirect=true)
 </p>
 
 
