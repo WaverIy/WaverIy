@@ -41,10 +41,12 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
    $${\color{#FFFCB8}Friends \space and/or \space anyone \space with \space the \space same \space interest(s) \space may \space cuddle/hide \space behind \space me \space freely.}$$ <br>
    $${\color{#FFFCB8}Please \space refrain \space from \space covering \space my \space skins, \space much \space appreciated!}$$ <br>
  </details /p>
- 
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=true&bar_color=975f11&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&redirect=true)
 </p>
 
-   
+
 <p align="center">
   <img width="400" height="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525807652612079726/HARVEY_DENT.jpg?ex=6a54ba9c&is=6a53691c&hm=4ad2a89de35fc4a7a6b089f98dbb76fa7e57c081e68d967bd311771e74559a10&">
 </p>
