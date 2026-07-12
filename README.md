@@ -16,7 +16,7 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
 </p>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=A35515&label=heads+or+tails" alt="profile view counter" width="100" align="center">
+<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=A35515&label=head+or+tails" alt="profile view counter" width="100" align="center">
 </p>
   
 <p align="center">
