@@ -40,6 +40,10 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
    $${\color{#FFFCB8}it \space is \space preferred \space if \space you \space whisper \space to \space me \space so \space that \space i'd \space see \space your \space chat.}$$ <br>
    $${\color{#FFFCB8}Friends \space and/or \space anyone \space with \space the \space same \space interest(s) \space may \space cuddle/hide \space behind \space me \space freely.}$$ <br>
    $${\color{#FFFCB8}Please \space refrain \space from \space covering \space my \space skins, \space much \space appreciated!}$$ <br>
+   $${\color{#FFFCB8}I \space sincerely \space apologize \space if \space it \space goes \space the \space other \space way \space around}$$ <br>
+   $${\color{#FFFCB8}(in \space other \space words, \space if \space i \space am \space the \space one \space covering \space you),}$$ <br>
+   $${\color{#FFFCB8}I \space rarely \space move \space from \space 'my' \space spots. \space if \space that \space is \space the \space case,}$$ <br>
+   $${\color{#FFFCB8}you \space are \space free \space to \space hide \space me.}$$ <br>
  </details /p>
 
 
