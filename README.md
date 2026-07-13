@@ -45,6 +45,8 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
    $${\color{#FFFCB8}(in \space other \space words, \space if \space i \space am \space the \space one \space covering \space you),}$$ <br>
    $${\color{#FFFCB8}I \space rarely \space move \space from \space 'my' \space spots. \space if \space that \space is \space the \space case,}$$ <br>
    $${\color{#FFFCB8}you \space are \space free \space to \space hide \space me.}$$ <br>
+   $${\color{#FFFCB8}strictly, \space do \space NOT \space copy \space nor \space take \space inspirations \space from \space my \space skins.}$$ <br>
+   $${\color{#FFFCB8}i \space never \space use \space tonetags.}$$ <br>
  </details /p>
 
 
