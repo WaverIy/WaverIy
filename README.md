@@ -35,7 +35,7 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
    <br>
      $${\color{#A35515}Dni: \space} {\color{#FFFCB8}-16 \space unless \space close \space friends, \space illiterates, \space bigots,}$$ <br>
    $${\color{#FFFCB8}anyone \space that \space hangs \space around \space *that* \space tree.}$$ <br>
-   $${\color{#FFFCB8}if \space your \space name \space starts \space with \space an \space S \space and \space ends \space with \space AM, \space get \space OUT.}$$ <br>
+   $${\color{#FFFCB8}genuine \space immatures.}$$ <br>
     $${\color{#FFFCB8}other \space times \space i \space block/hide \space freely.}$$ <br>
      $${\color{#A35515}Miscellaneous: \space} {\color{#FFFCB8}I \space am \space afk \space most \space of \space the \space time \space on \space Pony Town,}$$ <br>
    $${\color{#FFFCB8}it \space is \space preferred \space if \space you \space whisper \space to \space me \space so \space that \space i'd \space see \space your \space chat.}$$ <br>
