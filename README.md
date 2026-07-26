@@ -4,12 +4,17 @@ check https://harvdent.straw.page instead
 
 
 <p align="center">
-  <img width="400" height="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525807652612079726/HARVEY_DENT.jpg?ex=6a54ba9c&is=6a53691c&hm=4ad2a89de35fc4a7a6b089f98dbb76fa7e57c081e68d967bd311771e74559a10&">
+  <img width="400" height="120" src="https://files.catbox.moe/qsg14y.gif">
 </p>
 
 <p align="center">
-<img width="500" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525796824776970320/Untitled90_20260712163107.png?ex=6a54b086&is=6a535f06&hm=290e1423588ebcc05212cce0ad6883cc57e78f57c6d7566f2970a02915c70635&"></img></a>
+<img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530862741089288294/Untitled99_20260726160106.png?ex=6a671e87&is=6a65cd07&hm=deef20822892e62bde15022788eeb52a4ee7477e0476a0611bf3eb1c5c034a7f&"></img></a><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530862741533753484/Untitled99_20260726160141.png?ex=6a671e87&is=6a65cd07&hm=1687424a8ad5c8f089086f795bca84711c5bbf2db2255180d23c8e3301b3baac&"></img></a>
 </p>
+
+<p align="center">
+<img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530864178645045258/Untitled90_20260726160722.png?ex=6a671fde&is=6a65ce5e&hm=f32f3cb8b0e39f4dbc8a46385bcc04d2a3a4b76c60b38c0fb19fc674cbbce0fd&"></img></a><img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525799920425238559/Untitled90_20260712164400.png?ex=6a667fa9&is=6a652e29&hm=7b24f19fec4d4d8d6865f6d81d7c75ee1707c30b01bd954695cfa6ff9ac87959&"></img></a>
+</p>
+
 
 <p align="center">
   $${\color{#FFFCB8}He} {\color{#A35515}/} {\color{#FFFCB8}him}$$
@@ -18,7 +23,7 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
 </p>
 
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=A35515&label=head+or+tails" alt="profile view counter" width="100" align="center">
+<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=A35515&label=coin+flips" alt="profile view counter" width="100" align="center">
 </p>
   
 <p align="center">
