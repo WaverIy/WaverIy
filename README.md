@@ -12,7 +12,7 @@ check https://harvdent.straw.page instead
 </p>
 
 <p align="center">
-<img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530864178645045258/Untitled90_20260726160722.png?ex=6a671fde&is=6a65ce5e&hm=f32f3cb8b0e39f4dbc8a46385bcc04d2a3a4b76c60b38c0fb19fc674cbbce0fd&"></img></a><img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525799920425238559/Untitled90_20260712164400.png?ex=6a667fa9&is=6a652e29&hm=7b24f19fec4d4d8d6865f6d81d7c75ee1707c30b01bd954695cfa6ff9ac87959&"></img></a>
+<a href="https://harvdent.straw.page/"><img width="80" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530864178645045258/Untitled90_20260726160722.png?ex=6a671fde&is=6a65ce5e&hm=f32f3cb8b0e39f4dbc8a46385bcc04d2a3a4b76c60b38c0fb19fc674cbbce0fd&"></img></a> <a href="https://2face.atabook.org/"><img width="80" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525799920425238559/Untitled90_20260712164400.png?ex=6a667fa9&is=6a652e29&hm=7b24f19fec4d4d8d6865f6d81d7c75ee1707c30b01bd954695cfa6ff9ac87959&"></img></a>
 </p>
 
 
