@@ -31,6 +31,9 @@ $${\color{#FFFCB8}Adult, \space} {\color{#A35515}-16 dniucf}$$
 <img width="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530868642458243303/Untitled94_20260726162339.png?ex=6a672406&is=6a65d286&hm=70cfb83f16d33a8195762d96c20f00cc3d58b03fa5811f7fd4396868c035b054&"></img></a><img width="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530868642223358063/Untitled94_20260726162157.png?ex=6a672406&is=6a65d286&hm=38d4bd32f6e682296d8b30e0cc6832f0e553bdbf5a6785aa8a9e5b70a653efca&"></img></a><img width="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530868642789589133/Untitled94_20260726162454.png?ex=6a672406&is=6a65d286&hm=f431e12d0d96425f2fc3f94c0c220799249d56bed79a6631b202ae731d4aa59c&"></img></a>
 </p>
 
+<p align="center">
+  $${\color{#FFFCB8}fictkin,} {\color{#A35515}dbls \space dni,} {\color{#FFFCB8}cosplayers \space int}$$
+
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=true&bar_color=975f11&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31nkrrhi6ubffynrjfmge33npzxq&redirect=true)
 </p>
 
