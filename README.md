@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img width="600" src="https://files.catbox.moe/kxlgly.gif">
+  <img width="600" src="https://files.catbox.moe/bqjqni.gif">
 </p>
 
 <p align="center">
