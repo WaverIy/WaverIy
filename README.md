@@ -2,7 +2,7 @@
 
 
 <p align="center">
-  <img width="600" src="https://files.catbox.moe/bqjqni.gif">
+  <img width="600" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532414798514618499/ezgif.com-optimize_3.gif?ex=6a6cc3fe&is=6a6b727e&hm=991a386f50a354c0725ac47e5e23ffcc9883d01019cd50cae6c2000d8fada362&">
 </p>
 
 <p align="center">
