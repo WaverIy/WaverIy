@@ -5,7 +5,7 @@
   <img width="400" height="120" src="https://files.catbox.moe/qsg14y.gif">
 </p>
 
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Libertinus+Math&letterSpacing=10&duration=3000&pause=500&color=C26B2B&center=true&vCenter=true&random=true&width=435&lines=You're+out+of+touch;I'm+out+of+time)](https://git.io/typing-svg)
+ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[![Typing SVG](https://readme-typing-svg.demolab.com?font=Libertinus+Math&letterSpacing=10&duration=3000&pause=500&color=C26B2B&center=true&vCenter=true&random=true&width=435&lines=You're+out+of+touch;I'm+out+of+time)](https://git.io/typing-svg)
 
 <p align="center">
 <a href="https://harvdent.straw.page/"><img width="80" src="https://cdn.discordapp.com/attachments/1414894704050311201/1530864178645045258/Untitled90_20260726160722.png?ex=6a671fde&is=6a65ce5e&hm=f32f3cb8b0e39f4dbc8a46385bcc04d2a3a4b76c60b38c0fb19fc674cbbce0fd&"></img></a> <a href="https://2face.atabook.org/"><img width="80" src="https://cdn.discordapp.com/attachments/1414894704050311201/1525799920425238559/Untitled90_20260712164400.png?ex=6a667fa9&is=6a652e29&hm=7b24f19fec4d4d8d6865f6d81d7c75ee1707c30b01bd954695cfa6ff9ac87959&"></img></a>
