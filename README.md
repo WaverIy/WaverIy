@@ -35,12 +35,10 @@ $${\color{#717170} FindㅤmeㅤinㅤComicㅤarea.ㅤC+Hㅤisㅤalwaysㅤencourag
     <br>
 $${\color{#717170} Myㅤ'A'ㅤkeyㅤisㅤsomewhatㅤbroken,ㅤi'llㅤbeㅤmakingㅤtypos.}$$
     <br>
-
-    
-    
 $${\color{#717170} I'mㅤeitherㅤonㅤmyㅤownㅤorㅤwithㅤmyㅤfgㅤ:ㅤ]}$$
-<br>
-$${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤ*unlessㅤwhenㅤi'mㅤusingㅤofflineㅤmode.*}$$
+    <br>
+$${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤwhenㅤi'mㅤnotㅤusingㅤoffmode.}$$
+
 
   </details>
   </td>
