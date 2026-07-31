@@ -33,7 +33,7 @@ $${\color{#717170} Mostlyㅤonlineㅤbetweenㅤ7-10 A.Mㅤandㅤ6-10P.Mㅤutc+7}
 　　<br>
 $${\color{#717170} FindㅤmeㅤinㅤComicㅤarea.ㅤC+Hㅤisㅤalwaysㅤencouraged}$$
     <br>
-$${\color{#717170} Myㅤ'A'ㅤkeyㅤisㅤsomewhatㅤbroken,ㅤiㅤwillㅤmakeㅤsmallㅤtypos.}$$
+$${\color{#717170} Myㅤ'A'ㅤkeyㅤisㅤsomewhatㅤbroken,ㅤi'llㅤbeㅤmakingㅤtypos.}$$
     <br>
 
     
