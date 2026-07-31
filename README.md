@@ -38,6 +38,8 @@ $${\color{#717170} Myㅤ'A'ㅤkeyㅤisㅤsomewhatㅤbroken,ㅤi'llㅤbeㅤmaking
 $${\color{#717170} I'mㅤeitherㅤonㅤmyㅤownㅤorㅤwithㅤmyㅤfgㅤ:ㅤ]}$$
     <br>
 $${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤwhenㅤi'mㅤnotㅤusingㅤoffmode.}$$
+    <br>
+$${\color{#717170} ifㅤi'mㅤonㅤoffmodeㅤitㅤmeansㅤi'mㅤafk/notㅤinㅤtheㅤmoodㅤtoㅤchat!}$$
 
 
   </details>
