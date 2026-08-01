@@ -20,7 +20,7 @@ ${\color{#decfa3}{'Causeㅤlove'sㅤsuchㅤanㅤold-fashionedㅤword}}$
  
 ${\color{#decfa3}{TheㅤTwo-FaceㅤofㅤPonyTown}}$
 
-[*pt-wof*](https://github.com/pt-walk-of-fame) [*pt-f*](https://github.com/pt-fashion) [*pt-hom](https://github.com/pt-hall-of-media) 　<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=decfa3&label=coin+flips" alt="profile view counter" width="100"> 　
+[*pt-wof*](https://github.com/pt-walk-of-fame) [*pt-f*](https://github.com/pt-fashion) [*pt-hom*](https://github.com/pt-hall-of-media) 　<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=decfa3&label=coin+flips" alt="profile view counter" width="100"> 　
 
   <p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="Harvey, hehim adult, 2f fictkin dbls dni" align="left" /></p><p align="center">
     
