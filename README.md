@@ -34,6 +34,8 @@ $${\color{#717170} Mostlyㅤonlineㅤbetweenㅤ7-10 A.Mㅤandㅤ6-10P.Mㅤutc+7}
 $${\color{#717170} FindㅤmeㅤinㅤComicㅤarea.ㅤC+Hㅤisㅤalwaysㅤencouraged}$$
     <br>
 $${\color{#717170} Nominationsㅤisㅤallㅤiㅤcareㅤabout.}$$
+    <br>
+$${\color{#717170} Heavy batman&robin:y1ㅤ2faceㅤfictkin.}$$
 
   </details>
   </td>
