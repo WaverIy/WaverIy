@@ -35,7 +35,7 @@ $${\color{#717170} FindㅤmeㅤinㅤComicㅤarea.ㅤC+Hㅤisㅤalwaysㅤencourag
     <br>
 $${\color{#717170} Nominationsㅤisㅤallㅤiㅤcareㅤabout.}$$
     <br>
-$${\color{#717170} Heavy batmanㅤandㅤrobinㅤy1ㅤ2faceㅤfictkin.}$$
+$${\color{#717170} Heavyㅤbatmanㅤandㅤrobinㅤy1ㅤ2faceㅤfictkin.}$$
 
   </details>
   </td>
