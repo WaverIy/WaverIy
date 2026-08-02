@@ -39,7 +39,9 @@ $${\color{#717170} I'mㅤeitherㅤonㅤmyㅤownㅤorㅤwithㅤmyㅤfgㅤ:ㅤ]}$$
     <br>
 $${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤwhenㅤi'mㅤnotㅤusingㅤoffmode.}$$
     <br>
-$${\color{#717170} ifㅤi'mㅤonㅤoffmodeㅤitㅤmeansㅤi'mㅤafk/notㅤinㅤtheㅤmoodㅤtoㅤchat!}$$
+$${\color{#717170} ifㅤi'mㅤonㅤoffmodeㅤitㅤmeansㅤi'mㅤafk/notㅤinㅤtheㅤmoodㅤtoㅤchat.}$$
+    <br>
+$${\color{#717170} yes,ㅤiㅤamㅤinㅤloveㅤwithㅤnominations.ㅤNOMINATEㅤME!!!}$$
 
 
   </details>
