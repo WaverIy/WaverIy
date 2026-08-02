@@ -33,15 +33,7 @@ $${\color{#717170} Mostlyㅤonlineㅤbetweenㅤ7-10 A.Mㅤandㅤ6-10P.Mㅤutc+7}
 　　<br>
 $${\color{#717170} FindㅤmeㅤinㅤComicㅤarea.ㅤC+Hㅤisㅤalwaysㅤencouraged}$$
     <br>
-$${\color{#717170} Myㅤ'A'ㅤkeyㅤisㅤsomewhatㅤbroken,ㅤi'llㅤbeㅤmakingㅤtypos.}$$
-    <br>
-$${\color{#717170} I'mㅤeitherㅤonㅤmyㅤownㅤorㅤwithㅤmyㅤfgㅤ:ㅤ]}$$
-    <br>
-$${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤwhenㅤi'mㅤnotㅤusingㅤoffmode.}$$
-    <br>
-$${\color{#717170} ifㅤi'mㅤonㅤoffmodeㅤitㅤmeansㅤi'mㅤafk/notㅤinㅤtheㅤmoodㅤtoㅤchat.}$$
-    <br>
-$${\color{#717170} yes,ㅤiㅤamㅤinㅤloveㅤwithㅤnominations.ㅤNOMINATEㅤME!!!}$$
+$${\color{#717170} Nominationsㅤisㅤallㅤiㅤcareㅤabout.}$$
 
   </details>
   </td>
