@@ -42,6 +42,7 @@ $${\color{#717170} any1ㅤinㅤfriendlistㅤmayㅤapproachㅤmeㅤwhenㅤi'mㅤn
 $${\color{#717170} ifㅤi'mㅤonㅤoffmodeㅤitㅤmeansㅤi'mㅤafk/notㅤinㅤtheㅤmoodㅤtoㅤchat.}$$
     <br>
 $${\color{#717170} yes,ㅤiㅤamㅤinㅤloveㅤwithㅤnominations.ㅤNOMINATEㅤME!!!}$$
+    <br>
 
 
   </details>
