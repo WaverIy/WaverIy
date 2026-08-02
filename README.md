@@ -7,7 +7,7 @@
 <p align="center">
 
 
-<p align="center"><img width="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="i am but" align="left" /></p>
+<p align="center"><img width="120" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="i am everything but" align="left" /></p>
 <p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532571205931106354/Untitled102_20260731090739.png?ex=6a6d55a9&is=6a6c0429&hm=47656265c3b9b2e1003771cc520160cad96b3ea15b17c2974e739437ec2426f4&" alt="a mockery" align="left" /></p>
 
  
@@ -22,7 +22,7 @@ ${\color{#decfa3}{TheㅤTwo-FaceㅤofㅤPonyTown}}$
 
 [*pt-wof*](https://github.com/pt-walk-of-fame) [*pt-f*](https://github.com/pt-fashion) [*pt-hom*](https://github.com/pt-hall-of-media) 　<img src="https://komarev.com/ghpvc/?username=WaverIy&style=flat-square&color=decfa3&label=coin+flips" alt="profile view counter" width="100"> 　
 
-  <p align="center"><img width="300" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="of a potential" align="left" /></p><p align="center">
+  <p align="center"><img width="200" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="of a potential" align="left" /></p><p align="center">
     
 <tr>
 <td>
