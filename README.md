@@ -1,10 +1,10 @@
 
 
-  <p align="center"><img width="10" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a6d6706&is=6a6c1586&hm=68621314cb5b23a841ad08b85c91bbbd15a9b2ea223aa0951ed0142887bf1f25&" alt="i'm" align="left" /></p><p align="center">  <p align="center"><img width="280" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537795380173869186/Untitled111_20260814190937.png?ex=6a80570d&is=6a7f058d&hm=067f316d36873eb8110242312a7875ddc43abf7ff81170d5733bfb8c829fbf36&" alt="half" align="left" /></p>
-<p align="center"><img width="300" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537784218547920927/Untitled109_20260814182517.png?ex=6a804ca8&is=6a7efb28&hm=e77e9c6c21f27009bbdac267d411c500bd0a65e3bd05127d07388acdc11ffdf5&" alt="the man" align="left" /></p>
+  <p align="center"><img width="10" src="https://cdn.discordapp.com/attachments/1414894704050311201/1532589850413498528/Untitled102_20260731102412.png?ex=6a87c506&is=6a867386&hm=7f1127c815db1224119fa47a90710a1466d3e6514b13a9f5fe9444315fcf9f54&" alt="i'm" align="left" /></p><p align="center">  <p align="center"><img width="280" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537781996258861098/Untitled109_20260814181537.png?ex=6a883396&is=6a86e216&hm=d790d5a68a15a6e60a11564098598c2731c70e328b42659fe6474da7b8c98b96&" alt="half" align="left" /></p>
+<p align="center"><img width="300" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537784218547920927/Untitled109_20260814182517.png?ex=6a8835a8&is=6a86e428&hm=6ae4e54e540f5aeb1cb7d1ba2646bf6551af22f283f49628283bc2a9b56aff29&" alt="the man" align="left" /></p>
 
 
- <p align="center"><img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537788211059761213/Untitled109_20260814184104.png?ex=6a805060&is=6a7efee0&hm=45e97c0885170c2dd27eb071908dc892cafbb5d382164d5711ddfd3f6becdcab&" alt="i used" align="left" /></p>
+ <p align="center"><img width="100" src="https://cdn.discordapp.com/attachments/1414894704050311201/1537788211059761213/Untitled109_20260814184104.png?ex=6a883960&is=6a86e7e0&hm=7bc38a4ea76a290d3ad6c44917e96915ea4ac5574a64de794f1fbbbdddc3c434&" alt="i used" align="left" /></p>
 
 [a](https://2face.atabook.org/)tabook ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎‎  ‎ ‎‎‎‎‎‎‎pron[o](https://pronouns.cc/@2face)uns.cc ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
  
