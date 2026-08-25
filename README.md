@@ -12,7 +12,7 @@
  ‎‎ ‎ ‎‎ ‎he.him ‎ ‎‎‎ adult ‎ ‎‎‎ id.eng <br>
 𝘴𝘤𝘩𝘪𝘻𝘰𝘢𝘧𝘧𝘦𝘤𝘵𝘪𝘷𝘦 ‎ ‎‎‎ + ‎ ‎‎‎ 𝘣𝘱𝘥 <br>
              <br>
- ‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎<a href="https://2face.atabook.org/">𝔞𝔱𝔞</a> ‎ ‎‎‎ + ‎ ‎‎‎ 𝔭𝔯𝔫𝔰.‎‎<a href="https://2face.atabook.org/">𝔠𝔠</a>
+ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎<a href="https://2face.atabook.org/">𝔞𝔱𝔞</a> ‎ ‎‎‎ + ‎ ‎‎‎ 𝔭𝔯𝔫𝔰.‎‎<a href="https://pronouns.cc/@2face">𝔠𝔠</a>
     </td>
   </tr>
 
